@@ -33,4 +33,4 @@
 
 ### Step 6
 
-- Let cool completely before using. Store syrup in an airtight container for up to two weeks.
+- Let cool completely before using. Store syrup in an airtight container for up to three weeks.
